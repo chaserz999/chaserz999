@@ -13,4 +13,7 @@ So, for those out there like @Anonymous - who are you to target little guys when
 of every single living thing in existence, all of humanity and civilization, just to try boaasting their reliigious perspectives were true and correct, yet not by the gifts 
 God gave them...rather, the gifts God gave me which they tried plundering for their own gain through torture? 
 
+If anyone wants to help, I'd love it. Web content, editing, enhancing, marketing, etc etc...whatever you can to get a voice of reason and preparation out to the public!
+
 blueapples.space
+https://www.youtube.com/channel/UCOJLZogBT85gO83_WqCQLmQ
